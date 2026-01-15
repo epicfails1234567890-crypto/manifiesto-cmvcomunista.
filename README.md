@@ -1,0 +1,1 @@
+# manifiesto-cmvcomunista.
