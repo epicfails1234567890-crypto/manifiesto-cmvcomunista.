@@ -7,7 +7,7 @@ La religión y la educación son el opio del pueblo y bien q negaba la exorción
 
 Nada abaratará nada, puesto q esto no es cuestión tanto de quién trabaja, sino de recursos q haya, asi pues, el sistem educativo, surge como yugo explotador para q la gente no trabaje. No digo q no haya educación para operar a una persona o para ser ingeniero espacial o fabricar bombas atómicas, lo q digo es q el estado "izquierdista" o derechista no debería atreverse a robar el tiempo mediante el sistema educativo.
 
-Y ahora si, las 12 proposiciones alternativas al manifiesto comunista:
+Y ahora si, las 15 proposiciones alternativas al manifiesto comunista:
 
 1.- Expropiación de la propiedad inmueble y aplicación de vivienda gratuita minima e igual de centímetros cuadrados por persona.
 
