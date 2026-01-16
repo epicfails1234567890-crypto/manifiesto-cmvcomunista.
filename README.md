@@ -27,7 +27,7 @@ Y ahora si, las 15 proposiciones alternativas al manifiesto comunista:
 
 9.- Feminismo verdadero. Rechazo del misandrismo d q el hombre sea exterminado por la mujer. Igualmente se seguirá combatiendo el machismo como la violencia de género de cualquier sexo.
 
-10.- Una vez q el estado tenga liquidez en su impuesto del IRPF, los medios de producción fabriquen sin cesar y los manantiales de la riqueza corran como los chorros del oro gracias a los superconductores de Niobio y Estaño, invertir en Arsenal Termonuclear asi como camaras de vigilancia blindadas con superconductores para machacar todo delito con cadena perpetua. Protección de la nación. Fundación, en caso del estado, por ejemplo, España: Imperio Republicano, o, Rusia, Imperio Bolchevique.
+10.- Una vez q el estado tenga liquidez en su impuesto del IRPF, los medios de producción fabriquen sin cesar y los manantiales de la riqueza corran como los chorros del oro gracias a los superconductores de Niobio y Estaño, invertir en Arsenal Termonuclear asi como camaras de vigilancia blindadas con superconductores para machacar todo delito con cadena perpetua. Protección de la nación. Fundación, en caso del estado, por ejemplo, España: Imperio Republicano, o, Rusia, Imperio Soviético.
 
 11.- Protección a minusválidos con paga no contributiva como se merece.
 
